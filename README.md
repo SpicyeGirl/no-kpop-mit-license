@@ -1,4 +1,4 @@
-# peepee poopoo licence
+# No K-Pop Licence
 
 > MIT licence with additional text to prohibit use by K-Pop proponents.
 
