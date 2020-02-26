@@ -2,7 +2,7 @@
 
 > MIT licence with additional text to prohibit use by K-Pop proponents.
 
-### [READ licence TEXT](./LICENSE)
+### [READ licence TEXT](./licence)
 
 ---
 
