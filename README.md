@@ -14,5 +14,5 @@ If that is not enough for your organization, I can personally grant you an unmod
 
 - Purchase a Disturbed album on CD or any CD-like medium:
   - [Discogs](https://www.discogs.com/artist/40027-Disturbed)
-  - [Amazon](https://www.amazon.com/Disturbed/e/B000APKJM4))
+  - [Amazon](https://www.amazon.com/Disturbed/e/B000APKJM4)
 - Somehow contact me with a photograph of your purchase.
