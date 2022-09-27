@@ -12,7 +12,7 @@ If you are not a Weezer fan and don't actively support any Weezer related entiti
 
 If that is not enough for your organization, I can personally grant you an unmodified MIT license. Please follow these steps:
 
-- Purchase a Metal (any subgenre) album on CD or any CD-like medium:
+- Purchase a Disturbed album on CD or any CD-like medium:
   - [Discogs](https://www.discogs.com/)
   - [Amazon](https://www.amazon.com)
 - Somehow contact me with a photograph of your purchase.
